@@ -1,2 +1,0 @@
-# SIGED-certificado-secundaria-autenticacion-GAOM841207MCLRRR09
-GAOM841207MCLRRR09
